@@ -1,4 +1,4 @@
-Khouloud Jaffel
+Curriculum Vitae of Khouloud Jaffel
 
 Credits:
 
